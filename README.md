@@ -1,6 +1,6 @@
 ### hi, i'm nina . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-product designer focused on interaction, design systems & ai products.
+product designer focused on interaction, end-to-end product quality & ai products.
 
 <br/>
 
