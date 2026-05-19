@@ -4,12 +4,6 @@ product designer focused on interaction, design systems & ai products.
 
 <br/>
 
-```
-currently obsessing over → vibe coding and building cool things
-```
-
-<br/>
-
 **what i do**
 
 ✢ &nbsp; ux/ui design & interaction design  
